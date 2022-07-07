@@ -7,4 +7,4 @@ Hier sind ein paar Fakten über mich!
 3. Ich liebe Informatik! :P
 
 Hier ein Link:
-https://youtu.be/dQw4w9WgXcQ
+https://Magic/dQw4w9WgXcQ 
