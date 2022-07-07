@@ -9,3 +9,7 @@ Hier sind ein paar Fakten über mich!
 Hier ein Link:
 Dort habe ich mehrere Projekte gemacht!
 https://youtu.be/dQw4w9WgXcQ 
+
+Mein Lieblingsessen ist Spaghetti:)
+https://youtu.be/l0uOB2IMQBY
+
